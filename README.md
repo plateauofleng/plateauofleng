@@ -1,3 +1,5 @@
 <img src="https://media.discordapp.net/attachments/1473224097256443975/1483338649620975738/Untitled2455_20260316233809.png?ex=69ba3a45&amp;is=69b8e8c5&amp;hm=e812f14c9938ca65fad699ea712ab970e73f7e9c0676d8d1c35ba2d9a41678b6&amp;=&amp;format=webp&amp;quality=lossless&amp;width=240&amp;height=260" alt="Image"/>
 
-w2i! bad + slow at talking pls bare with me...
+w2i! often afk :) 
+
+bad + slow at talking pls bare with me...
